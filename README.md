@@ -26,7 +26,7 @@ jestem już na dnie
 kiedy czuję cię
 czasem kimam tak na skip
 żeby nie rozkminiać wszystkich dni
-
+czy chwil
 prostych w tonie, filozofie pochłonąłem
 zbyt pochopnie, z moim nastawieniem
 
