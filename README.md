@@ -7,34 +7,63 @@
 
 ```
 
-Co by powiedzieć gdzie
+bakemono
+
+wyruszyłem w siną dal
+
+ciężko stać
+
+
 nie wiem jadę nie ej
 
-xx
+trać
+b
 
-nie wiem co powiedzieć nie
-nie treść to powiedzieć hej
+
+
+jadę dalej lasem - lasem sztucznyyyyych prawd 
+- wytyczonych w darni ścian
+
+twoja zwojem (filtrem) przeplatana mantra - start
+na konarach martwych wydziarana prawda
+
+, ale pusta
+leży w ziemi i ryzomie - lasów zagadka
+dołączam do sieci korzeni, impulsów szał
+przestrzeni, gnam przez nołdy, wzrok rozmyty
+widzę a jestem ślepy na tym łonie
+bo betonem wyłożone
+
+
+
+twardych jak jedyna niby 
+jest konkretna
+popatrz, wsiąknij, klątwę osoby zdejmij
+nie 
+
+nie wiem co powiedzieć, nie
+nietakt to powiedzieć hej
 kiedy czuję cię kiedy czuję
 kiedy mówię nie kurwa nie ej
 
-kiedy czuję cię
+kiedy mielę się
 jakbyś miała dren
 nie śmiem po nic sięgać kiedy 
 jestem już na dnie ej
 
 jestem już na dnie
-kiedy czuję cię
+kiedy czuję woń 
 czasem kimam tak na skip
 żeby nie rozkminiać wszystkich dni
-czy chwil
-prostych w tonie, filozofie pochłonąłem
+czy chwil prostych w tonie, 
+filozofie pochłonąłem
 zbyt pochopnie, z moim nastawieniem
 
 wziąć na barki każde brzemię
 
-każda prawda ziarno kłamstwa - ma
+każda prawda ziarno kłamstwa maaaaa
 kiedy kiełkowała z ziemi
-każda racja ta 
+każda racja taaaa
 nieskończone poparcia znam
 z obu stron dosyć starcia mam darcia stan
 pierdolony tan
