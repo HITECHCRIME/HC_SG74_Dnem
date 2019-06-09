@@ -26,12 +26,25 @@ jestem już na dnie
 kiedy czuję cię
 czasem kimam tak na skip
 żeby nie rozkminiać wszystkich dni
+
 prostych w tonie, filozofie pochłonąłem
 zbyt pochopnie, z moim nastawieniem
+
 wziąć na barki każde brzemię
-nie bez walki się obyło, spalona ziemia w
-umysłu terenie, fortecy sumień
-których nie mam w sumie już
+
+każda prawda ziarno kłamstwa ma
+kiedy kiełkowała z ziemi
+
+każda racja to nieskończone poparcia
+z obu stron, więc udaję tę pośrednią instancję
+żartowałem, ja tam już jestem od samego początku
+leżę między nimi
+
+
+nie bez walki się obyło, kretyńskie paranoje
+spalona ziemia w umysłu terenie, fortecy sumień
+których nie mam w sumie już ej
+
 życie oto ten typ nowy, 
 ten co wziął sam się za poły
 zdmuchnał kurz i ruszył na podboje
