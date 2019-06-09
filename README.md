@@ -20,7 +20,7 @@ kiedy mówię nie kurwa nie ej
 kiedy czuję cię
 jakbyś miała dren
 nie śmiem po nic sięgać kiedy 
-jestem już na dnie
+jestem już na dnie ej
 
 jestem już na dnie
 kiedy czuję cię
@@ -32,10 +32,18 @@ zbyt pochopnie, z moim nastawieniem
 
 wziąć na barki każde brzemię
 
-każda prawda ziarno kłamstwa ma
+każda prawda ziarno kłamstwa - ma
 kiedy kiełkowała z ziemi
+każda racja ta 
+nieskończone poparcia znam
+z obu stron dosyć starcia mam darcia stan
+pierdolony tan
 
-każda racja to nieskończone poparcia
+każda prawda ziarno kłamstwa ma
+kiedy kiełkowała z ziemi na powietrze
+
+
+każda racja to 
 z obu stron, więc udaję tę pośrednią instancję
 żartowałem, ja tam już jestem od samego początku
 leżę między nimi
