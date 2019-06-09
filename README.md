@@ -21,18 +21,7 @@ b
 
 
 
-jadę dalej lasem - lasem sztucznyyyyych prawd 
-- wytyczonych w darni ścian
 
-twoja zwojem (filtrem) przeplatana mantra - start
-na konarach martwych wydziarana prawda
-
-, ale pusta
-leży w ziemi i ryzomie - lasów zagadka
-dołączam do sieci korzeni, impulsów szał
-przestrzeni, gnam przez nołdy, wzrok rozmyty
-widzę a jestem ślepy na tym łonie
-bo betonem wyłożone
 
 
 
