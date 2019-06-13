@@ -31,7 +31,7 @@ popatrz, wsiąknij, klątwę osoby zdejmij
 nie 
 
 nie wiem co powiedzieć, nie
-nietakt to powiedzieć hej
+nie treść to powiedzieć hej (nietakt)
 kiedy czuję cię kiedy czuję
 kiedy mówię nie kurwa nie ej
 
@@ -59,7 +59,6 @@ pierdolony tan
 
 każda prawda ziarno kłamstwa ma
 kiedy kiełkowała z ziemi na powietrze
-
 
 każda racja to 
 z obu stron, więc udaję tę pośrednią instancję
